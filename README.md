@@ -7,7 +7,7 @@ just a second-year engineering student trying to figure things out.
 
 🌱 about me
 
-I like learning things the hard way — by trying, failing, fixing, and trying again 😅. I’m into AI, generative stuff, and tech in general, but honestly I’m still exploring and learning every day.
+I like learning things the hard way by trying, failing, fixing, and trying again 😅. I’m into AI, generative stuff, and tech in general, but honestly I’m still exploring and learning every day.
 
 some days I’m super motivated 🚀, some days I’m just confused staring at code for hours… but I keep going.
 
