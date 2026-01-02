@@ -34,11 +34,6 @@ some days I’m super motivated 🚀, some days I’m just confused staring at c
 
 🍜 food makes everything better
 
-🎬 i watch anime a lot (story > action for me)
-
-🌙 late nights thinking about life & future
-
-
 
 ---
 
@@ -48,15 +43,10 @@ try → fail → google → try again
 
 build first, understand later
 
-consistency over motivation (still working on this 😬)
-
 
 
 ---
 
-🤝 say hi
-
-if you’re learning, building, confused, or just vibing — you’re welcome here.
 
 > just trying to get better, slowly but honestly.
 
